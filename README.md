@@ -1,8 +1,13 @@
 # Individual: 
+## drive.proton.me/urls/9YR68Z66HM#FAsJBa1byvWl
 ## drive.google.com/file/d/12bwwgc1bLgtbxCpr88V4NYor1kYkYK-W/view?usp=sharing
 
 # Console: 
+## drive.proton.me/urls/RB8PM19K0G#cuWUdkj9HVeM
 ## drive.google.com/drive/folders/11PKK6I1AAPtXJfLN1l0vgZ-rB20QCRQj?usp=sharing
+
+# Archive (Unedited Transcripts):
+## github.com/ambonham96
 
 # 2024 Damage: 
 ## Four of five chief executives;
