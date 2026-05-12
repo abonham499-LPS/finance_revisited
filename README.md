@@ -1,15 +1,19 @@
 # Individual: 
-## https://drive.google.com/file/d/12bwwgc1bLgtbxCpr88V4NYor1kYkYK-W/view?usp=sharing
+## drive.google.com/file/d/12bwwgc1bLgtbxCpr88V4NYor1kYkYK-W/view?usp=sharing
 
 # Console: 
-## https://drive.google.com/drive/folders/11PKK6I1AAPtXJfLN1l0vgZ-rB20QCRQj?usp=sharing
+## drive.google.com/drive/folders/11PKK6I1AAPtXJfLN1l0vgZ-rB20QCRQj?usp=sharing
 
 # 2024 Damage: 
-## Four of five chief executives, hundreds of millions of dollars in inventory loss, tens of billions of dollars in stock; 
+## Four of five chief executives;
+## Hundreds of millions of dollars in inventory loss;
+## Tens of billions of dollars in stock; 
 ## Disabling of half of an airline.
 
 # 2025 to 2026 Damage: 
-## Tens of millions of dollars in inventory trafficked, hundreds of millions of dollars in stock, and hundreds of employees;
+## Tens of millions of dollars in inventory trafficked;
+## Hundreds of millions of dollars in stock;
+## Hundreds of employees;
 ## Total deactivation of an airline.
 
 # Response: 
