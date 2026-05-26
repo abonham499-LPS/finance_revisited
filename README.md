@@ -3,7 +3,7 @@
 ## drive.google.com/file/d/12bwwgc1bLgtbxCpr88V4NYor1kYkYK-W/view?usp=sharing
 
 # Console: 
-## drive.proton.me/urls/2VDMTB0TV8#3e5Zys5V6RG2
+## drive.proton.me/urls/JF9GD587K8#VEZpIaSEIxrY
 ## drive.google.com/drive/folders/11PKK6I1AAPtXJfLN1l0vgZ-rB20QCRQj?usp=sharing
 
 # Archive (Unedited Transcripts):
